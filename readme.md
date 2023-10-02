@@ -1,0 +1,1 @@
+This is the biginning of learning HTML CSS and JavaScript. I want to do it right and better with a touch of excellence, taking the bull by the horn, God help me to stay focus and achieve my aim. Amen
